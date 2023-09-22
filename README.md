@@ -1,4 +1,3 @@
-# resume
 
 # Pruthvirajsinh Solanki
 ![profilepic](https://github.com/Pruthviraj7/resume/assets/72735146/a50ce30f-1b7b-427c-b191-495e0ff01c42)
