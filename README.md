@@ -1,5 +1,5 @@
 
-# Pruthvirajsinh Solanki
+# Pruthvirajsinh Solankii
 ![profilepic](https://github.com/Pruthviraj7/resume/assets/72735146/a50ce30f-1b7b-427c-b191-495e0ff01c42)
 
 Hello!!! I am Pruthviraj(Raj) from India, Currently I am pursuing Web Development from Humber College. I have done my internship for around 6 months as a Database Analyst back in India. My hobbies are to play cricket, chess and watch Movies, series.  
